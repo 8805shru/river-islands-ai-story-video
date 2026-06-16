@@ -41,7 +41,7 @@ The project showcases entrepreneurship, city development, hospitality innovation
 
 ## Final Video Link
 
-(Add your Google Drive video link here)
+https://drive.google.com/drive/folders/1L0iAZaAeMi4oQpBR2A2FO1EIM_5aDAYM
 
 ## Outcome
 
